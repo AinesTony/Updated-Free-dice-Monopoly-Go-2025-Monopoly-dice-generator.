@@ -3,9 +3,14 @@ Monopoly GO is always bringing fun new events to keep the game fresh. Now that t
 
 If you want to earn some fabulous rewards, the Operation Tycoon Monopoly GO event is worth your time. You have 50 milestones to achieve, and each of them has great rewards for you, including dice rolls, cash, sticker packs, and Gauntlet Tokens for the Amazing Partners event. Here’s a quick look at each milestone and the rewards you will earn as you progress in the Operation Tycoon Monopoly GO event.​
 
+
+
 **[👉CLICK HERE TO GET NOW FREE](https://link.gettrendd.com/monopoly)**
 
 **[👉CLICK HERE TO GET NOW FREE](https://link.gettrendd.com/monopoly)**
+
+
+
 The rewards in the Operation Tycoon Monopoly GO event are no joke. The top reward includes a massive 7,500 dice and a five-star sticker pack. The Gauntlet tokens you earn in Operation Tycoon can be used in the Amazing Partners event, which means completing milestones here can help you make progress in both events at once.
 
 Here are some of the most important rewards you won’t want to miss in Operation Tycoon Monopoly GO:
